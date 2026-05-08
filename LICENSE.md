@@ -1,4 +1,4 @@
-
+aura ascension smart Scripts is the best aura ascension Script, featuring infinite resources and no cooldown. Safe and powerful for all your needs.
 
 
 
